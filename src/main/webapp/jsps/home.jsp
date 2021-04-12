@@ -20,7 +20,7 @@
 		Prasanth Software Solutions, 
 		Martha Halli,
 		Bangalore,
-		+91-7338088827,
+		+91-8978017430,
 		gprasanthkumar227@gmail.com
 		<br>
 		<a href="mailto:gprasanthkumar227@gmail.com">Mail to Prasanth Technologies</a>
